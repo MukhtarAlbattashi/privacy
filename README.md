@@ -1,5 +1,5 @@
 # Privacy Policy for Play & Earn
-At Play & Earn, accessible from https://mukhtaradsapp.ml/, one of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded by Play & Earn and how we use it.
+At Play & Earn, accessible from Play & Earn app one of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded by Play & Earn and how we use it.
 
 If you have additional questions or require more information about our Privacy Policy, do not hesitate to contact us.
 
